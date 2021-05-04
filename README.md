@@ -1,1 +1,1 @@
-# beauty.github.io
+https://anastasia-j.github.io/beauty.github.io/
